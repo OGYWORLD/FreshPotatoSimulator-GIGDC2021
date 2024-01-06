@@ -31,3 +31,7 @@ CC, 동아리, 중간고사 등...
 
 
 <br>
+
+> 게임 플레이 영상
+
+https://youtu.be/EXeva2_GjsA
